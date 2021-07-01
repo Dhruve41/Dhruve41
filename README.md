@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Dhruve41
+- 👀 I’m interested in coding and AI 
+- 🌱 I’m currently learning python 
+- 💞️ I’m looking for my dreams
+- 📫 you can contact me directly through instagram @dhruv_anand41
